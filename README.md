@@ -1,4 +1,4 @@
-new and i love yisang / platonically
+new PM buns ( don't flame me )and i love yisang / platonically
 
 ![](https://komarev.com/ghpvc/?username=angelspup)
 yisang rentry / readme soon

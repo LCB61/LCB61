@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
-new PM buns ( don't flame me )and i love yisang / platonically
+new PM bum , canto 5 rn( don't flame me )and i love yisang / platonically
 <img src="https://files.catbox.moe/4vyjj9.png">
 yisang rentry / readme soon
 

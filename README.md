@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
-new PM bum , canto 5 rn ( don't flame me )and i love yisang / platonically
+new PM bum , canto 5 rn ( don't flame me ) and i love yisang / platonically . I would be real happy if someone explain bit of LOB.C/LOR lore bcs i dont have time to play
 <img src="https://files.catbox.moe/4vyjj9.png">
 yisang rentry / readme soon
 

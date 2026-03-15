@@ -4,7 +4,7 @@ new PM bum , canto 5 rn ( don't flame me )
 
 <img src="https://media1.tenor.com/m/Ykbk4l7g1SkAAAAC/yi-sang-yisang.gif">
 
-I really really like yisang , in a platonically way . im not romantically attracted to him . omw making every yi sang E.G.O and id trust !
+I really really like yisang , in a platonic way . im not romantically attracted to him . but hey i love every ship that include him , even rarepairs . i would love to hear it
 
 　<h4 align="center">[rentry](https://rentry.co/angelspup)　 ￼ 　[ata](https://angelspup.atabook.org/)　￼ 　[pins](https://www.pinterest.com/angelspup/)　﹒ 　  </h3>
 

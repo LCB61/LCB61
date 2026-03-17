@@ -1,8 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
-new PM bum , canto 5 rn ( don't flame me )
+support my friend's rentry comm.. [now](https://www.tiktok.com/@bikerspup?_r=1&_t=ZS-94lYh9gcunv) !
 
-<img src="https://media1.tenor.com/m/Ykbk4l7g1SkAAAAC/yi-sang-yisang.gif">
+<img src="https://files.catbox.moe/61qu88.png">
 
 I really really like yisang , in a platonic way . im not romantically attracted to him . but hey i love every ship that include him , even rarepairs . i would love to hear it
 

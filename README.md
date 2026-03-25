@@ -6,7 +6,7 @@ read rentry before you int thnx
 <img src="https://files.catbox.moe/61qu88.png">
 
 
-　<h4 align="center">[rentry](https://rentry.co/angelspup)　 ￼ 　[read B4I](https://rentry.co/witheredlilies)　 ￼ 　[ata](https://angelspup.atabook.org/)　￼ 　[pins](https://www.pinterest.com/angelspup/)　﹒ 　  </h3>
+　<h4 align="center">[rentry](https://rentry.co/angelspup)　[info](https://rentry.co/witheredlilies)　 ￼ 　[ata](https://angelspup.atabook.org/)　[pins](https://www.pinterest.com/angelspup/)　﹒ 　  </h3>
 
 
 

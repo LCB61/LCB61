@@ -1,9 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
-support my friend's rentry comm.. [now](https://www.tiktok.com/@bikerspup?_r=1&_t=ZS-94lYh9gcunv) !
+cute baby yi sang copy baby two time from pedosaken 🤬🤬
 
 read rentry before you int thnx
-<img src="https://files.catbox.moe/63l06i.png">
+<img src="https://files.catbox.moe/303a3q.png">
 
 
 　<h4 align="center">[rentry](https://rentry.co/angelspup)　[info](https://rentry.co/witheredlilies)　 ￼ 　[ata](https://angelspup.atabook.org/)　[pins](https://www.pinterest.com/angelspup/)　﹒ 　  </h3>

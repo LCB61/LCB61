@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
-read rentry before you int thnx
+read rentry before you int thnx . strawpage is broke atm xxoxo
 <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2xwOTNyZHVsdGFiejZuMWhzY3pldXRrZ2Z4aTBiaWpnNnR2cmt0eCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/vhOXetlcY8fwasJS6Y/giphy.gif">
 
 

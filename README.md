@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
-cute baby yi sang copy baby two time from pedosaken 🤬🤬
-
 read rentry before you int thnx
 <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2xwOTNyZHVsdGFiejZuMWhzY3pldXRrZ2Z4aTBiaWpnNnR2cmt0eCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/vhOXetlcY8fwasJS6Y/giphy.gif">
 

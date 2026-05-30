@@ -1,4 +1,4 @@
- 　  　  　 　  　 　  　  　 　  　  　          　        ![](https://komarev.com/ghpvc/?username=angelspup)
+ 　  　  　 　  　 　  　  　 　  　  　          　        ![](https://komarev.com/ghpvc/?username=angelspup&label=ᛝ⋮..۶ৎ.&color=1b1b1b&style=flat-square)
                                                 
  　  　  　     　 　  　   　  　  　    　      　  　    hongsang strawpage coming soon . . . sign ata and int freely if same interest
 

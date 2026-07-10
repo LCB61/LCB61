@@ -1,4 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=angelspup&label=wip&color=c01b1b&style=flat-square)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀block if dislike , idgaf . leave a message in ata
-
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀SL yi sang x CA ryoshu ceo
 ![](https://files.catbox.moe/fuott0.png)

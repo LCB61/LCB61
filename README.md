@@ -1,5 +1,5 @@
 ![](https://64.media.tumblr.com/a892f7acf235cd5ffd3d58a68d528407/5e758e50aeceeb46-43/s1280x1920/d0e3fe9d9c8f08c8baf26e84581766b974472686.pnj)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/30110ae4a3e7b567dc2dc720d819222b/5e758e50aeceeb46-9e/s75x75_c1/2b8d07d759f5942ddd018f459c6c6e0773e9e810.gifv)⠀⠀![](https://komarev.com/ghpvc/?username=angelspup&label=𝄂𝄚𝅦𝄚𝄞𝅄ㅤ&color=60898d&style=plastic)  ⠀⠀![](https://64.media.tumblr.com/6f4244fd048507218b5c41e6f00b063a/5e758e50aeceeb46-89/s75x75_c1/4cf30713087daa6aa2bd47c6432177f19e85319b.gifv)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/30110ae4a3e7b567dc2dc720d819222b/5e758e50aeceeb46-9e/s75x75_c1/2b8d07d759f5942ddd018f459c6c6e0773e9e810.gifv)⠀⠀![](https://komarev.com/ghpvc/?username=angelspup&label=𓇢𓆸ㅤ&color=60898d&style=plastic)  ⠀⠀![](https://64.media.tumblr.com/6f4244fd048507218b5c41e6f00b063a/5e758e50aeceeb46-89/s75x75_c1/4cf30713087daa6aa2bd47c6432177f19e85319b.gifv)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀" Lingering Resolve [餘桓] '
 ![](https://64.media.tumblr.com/1437461f413da4a8a199148968f3384c/5e758e50aeceeb46-d9/s2048x3072/f3e75d330bf2c3ac1df88b1412ebe15dc8a84995.pnj)
 

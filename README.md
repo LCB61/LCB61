@@ -9,8 +9,4 @@
 
 ⠀![](https://64.media.tumblr.com/db0360091c93403160816a0b033b7fa6/5e758e50aeceeb46-48/s1280x1920/501e55ed0aa540ce05d63169bdacf8290cfb9753.pnj)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ iwc all the time
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀azuretime can die on my sight , post trauma with twotime so gtfo
-
 ![](https://64.media.tumblr.com/455723fe3fcaea8f018f68a3aa1f8304/5e758e50aeceeb46-03/s1280x1920/6b9f55fd49cbabce0256e5c51520c91949c2d2ee.pnj)

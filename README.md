@@ -5,7 +5,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/5c2c61038a27ec7b279b45aeab17c46a/5e758e50aeceeb46-b0/s400x600/d19f77c3b08185aafb835c4d30e7e2829c334b6f.pnj) ![](https://64.media.tumblr.com/d92d18c795d5e5ebac85a37d1e3b0cf8/5e758e50aeceeb46-21/s400x600/8a984ba3000e8e1b81b353a0451c042d8772d153.pnj)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[straw](https://licb61.straw.page/)⠀⠀⠀⠀[ata](https://lcb61.atabook.org/)⠀⠀⠀ [byi](https://rentry.co/lcb061)⠀⠀⠀ [pins](https://pin.it/9HK4GxT8b)⠀⠀⠀  [rentry](https://rentry.co/angelspup)⠀⠀⠀  [pins](https://pin.it/9HK4GxT8b)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[straw](https://licb61.straw.page/)⠀⠀⠀⠀[ata](https://lcb61.atabook.org/)⠀⠀⠀ [byi](https://rentry.co/lcb061)⠀⠀⠀ [pins](https://pin.it/9HK4GxT8b)⠀⠀⠀  [rentry](https://rentry.co/angelspup)⠀⠀⠀  
 
 ⠀![](https://64.media.tumblr.com/db0360091c93403160816a0b033b7fa6/5e758e50aeceeb46-48/s1280x1920/501e55ed0aa540ce05d63169bdacf8290cfb9753.pnj)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀graphic cre : sigelkissed ( tumblr )

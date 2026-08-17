@@ -4,8 +4,12 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[straw](https://licb61.straw.page/)⠀⠀⠀⠀[ata](https://lcb61.atabook.org/)⠀⠀⠀ [byi](https://rentry.co/lcb061)⠀⠀⠀ [pins](https://pin.it/9HK4GxT8b)⠀⠀⠀  [rentry](https://rentry.co/angelspup)⠀⠀⠀  
 
-im very distant and actively avoid cuddle pile , i only do 2 people cuddle best thank,
+doi tay em hay doi tay anh khong  that chat
+ao yeu thuong lau nay xem nhu may bay gio cuon tung ngay 
+de bao nhau nuoc mat tham uot vai em anh cung can loi 😅😅
+Thu em can la vat chat… 😏😏
 
-please shut up if you gonna comment my skin like redcliff + prideful or picky about the colour unless friend ( i got called period blood + piss for having skins too red/yellow 🫩🫩✌️✌️ )
-
-ACTUAL trauma with azuretime , please fucking go if youre two time🤣🤣🤣
+em muon di xe hoi, muon song xa hoa, muon o nha lau
+dem dem di xuong pho an choi, em song theo kieu nha giau
+dau con lai minh anh cau yeu thuong chat phac moi tinh 
+roi buong doi tay em lac di giua dong doi 😢😢

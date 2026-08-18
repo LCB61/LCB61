@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=angelspup&label=wip&color=60898d&style=plastic)
+![](https://komarev.com/ghpvc/?username=angelspup&label=⠀⠀⠀&color=74b4b6&style=plastic)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀note
 ![](https://files.catbox.moe/yrzd83.png)
 

@@ -4,8 +4,12 @@
 ![](https://files.catbox.moe/obc15x.webp)
 ---
 Block me freely as Im sort of tiring person to deal with
+
 I hate cuddle piles + large socializing circle as it irrarated me , So please ASK if you can come over to sit
-Isolating frequently as an old habit due to past trauma , yeah i found everyone annoying and pushing them away 😴😴 ( except partner )
+
+Isolating frequently as an old habit due to past trauma 😴😴 ( except partner )
+
+things i would LOVES to talk to and doesn't irrirated me for long conversation : DJ SHARPNEL ,hongsang , hernarich, music
 
 ---
 

@@ -2,7 +2,7 @@
 
 ---
 
-block me whatever. idc.
+block me whatever. ask to come over.
 
 ---
 

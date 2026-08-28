@@ -2,7 +2,8 @@
 
 ---
 
-block me whatever. ask to come over.
+me and hb
+![](https://files.catbox.moe/v8d5rm.jpeg)
 
 ---
 

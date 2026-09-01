@@ -3,7 +3,7 @@
 ---
 
 chem . masc prns . i like limbus + DJ SHARPNEL + idv + eva for now , kaji ryoji + bamboo kim kin
-hongsang + ryosang + hernarich diehard fan
+hongsang + ryosang + hernarich diehard fan.
 hongshu - faustsang dni
 
 ---

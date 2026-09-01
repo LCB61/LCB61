@@ -2,8 +2,9 @@
 
 ---
 
-me and hb
-![](https://files.catbox.moe/v8d5rm.jpeg)
+chem . masc prns . i like limbus + DJ SHARPNEL + idv + eva for now , kaji ryoji + bamboo kim kin
+hongsang + ryosang + hernarich diehard fan
+hongshu - faustsang dni
 
 ---
 

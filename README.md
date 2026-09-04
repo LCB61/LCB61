@@ -1,6 +1,9 @@
 ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=angelspup&label=⠀⠀处方⠀⠀⠀&color=74b4b6&style=flat-square) 
 
 ---
+pls go love this game its awesome ok -> fried chicken wings cause love fire
+![](https://files.catbox.moe/3qsunx.png)
+
 
 ---
 

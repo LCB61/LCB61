@@ -6,4 +6,4 @@ Thứ ba : Tôi kị Azuretime vì nó liên quan mật thiết đến người 
 
 MUỐN MANG CÁI AZURETIME TƯƠNG TÁC THẲNG VỚI TÔI LẦN NỮA THÌ ĂN BLOCK LÀ NHẸ NHÉ ?
 
-P/S : Azurechance + Ellertrapped4 int thoải mái <3 . Support all trừ Azure////Time + Dusek////Taph
+P/S : Azurechance + Ellertrapped244 int thoải mái <3 . Support all trừ Azure////Time + Dusek////Taph

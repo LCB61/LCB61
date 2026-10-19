@@ -5,3 +5,5 @@ Thứ hai : các bạn còn rủ rê bạn bè vào và làm các hành động 
 Thứ ba : Tôi kị Azuretime vì nó liên quan mật thiết đến người đã bạo hành tinh thần + khiến tôi bị trauma trong một thời gian dài. Tôi hoàn toàn có quyền có không gian riêng tư và né xa Azuretime nhé ?
 
 MUỐN MANG CÁI AZURETIME TƯƠNG TÁC THẲNG VỚI TÔI LẦN NỮA THÌ ĂN BLOCK LÀ NHẸ NHÉ ?
+
+P/S : Azurechance + Ellertrapped4 int thoải mái <3 . Support all trừ Azure////Time + Dusek////Taph

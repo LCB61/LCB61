@@ -9,3 +9,6 @@ Phép lịch sự là tối thiểu , Phép lịch sự là tối thiểu , Phé
 5) Chủ yếu offtab / afk . Nếu thấy tôi ngồi một mình cứ thoải mái lại gần.
 6) Tôi thích selfcest + rarepairs. Khó chịu về việc đó thì block tôi thoải mái ok ?
 7) Thiện cảm thấp với fandom forsaken nói chung, DNI nếu bạn đơn thuần là kid trẩu đi kháy ngkhac chỉ vì ship + đục thuyền. Không ai rảnh nợ để tốn thời gian cho bạn cả.
+
+P/S: ĐỪNG COPY các skin dưới mọi hình thức, nếu muốn lấy idea thì hãy xin phép. 
+- Không ngại nói chuyện nếu bạn có hành vi sao chép 

@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=angelspup* 
+![](https://komarev.com/ghpvc/?username=angelspup)
 
 update soon

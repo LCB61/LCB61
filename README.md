@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=angelspup&label=kafes.&color=D7B0CD&style=flat)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀click imgs for links.
+⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=angelspup&label=kafes.&color=D7B0CD&style=flat)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀click stamps for links.
 
 ---
 
